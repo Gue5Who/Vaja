@@ -1,3 +1,3 @@
 # Naslov
 Moj lajf
-Je cista jeba
+Je cista Banana+Ananas
