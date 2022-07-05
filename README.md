@@ -7,3 +7,4 @@ Pravi hype song hehe
 Moren iti po maloga cefizlja. Samo še nej zdaj, ampsak slede.
 ## Sick song 
 Cage the elephant - Aint no rest for the wicked
+Živa je ritka
