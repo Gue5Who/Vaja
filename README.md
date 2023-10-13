@@ -4,7 +4,6 @@ Je cista Banana+Ananas
 ## Samo jako
 Pravi hype song hehe
 ## Fak
-Moren iti po maloga cefizlja. Samo še nej zdaj, ampsak slede.
+Moren iti po maloga cricka. Samo še nej zdaj, ampsak slede.
 ## Sick song 
-Cage the elephant - Aint no rest for the wicked
-Živa je ritka
+Invent Animate - The Sun Sleeps
